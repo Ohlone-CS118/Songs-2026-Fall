@@ -1,1 +1,7 @@
-# Songs-2026-Fall
+# Songs-2026-Fal
+## Khalid 
+1. Ricky Rich, Dardan & DJ Gimi-O - Habibi (Albanian Remix)
+2. Die With a Smile” – Lady Gaga & Bruno Mars
+3.Blinding Lights” – The Weeknd
+4. Crazy Frog - Axel F
+5. Shape of You” – Ed Sheeran
