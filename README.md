@@ -1,1 +1,6 @@
 # Songs-2026-Fall
+Aaron Udoutch
+lay all your love on me - ABBA
+the gambler - kenny rodgers
+wind of change - the scorpions
+tomorrow - annie
