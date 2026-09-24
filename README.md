@@ -1,1 +1,7 @@
 # Songs-2026-Fall
+## Maggie Yu
+Strategy by Twice
+RUDE! by Hearts2Hearts
+Style by Taylor Swift
+NOT CUTE ANYMORE by ILLIT
+love. by wave to earth
