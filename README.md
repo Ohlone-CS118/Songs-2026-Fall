@@ -1,1 +1,11 @@
-# Songs-2026-Fall
+# Songs-2026-Fal
+## Jephthah Ikeh
+1. Love is the message (Live at Abbey Road Studios) - Yussef Dayes
+
+2. Pray - Limoblaze
+
+3. Humane Nature on the Osmose - Joshua Domfe
+
+4. Sing Sing Sing - Louis Dowdeswell Big Band
+
+5. Fading - Decyfer Down
